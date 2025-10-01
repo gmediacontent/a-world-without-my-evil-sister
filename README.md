@@ -1,1 +1,2 @@
-# a-world-without-my-evil-sister
+# A World Without My Evil Sister
+Accueillie au sein de la froide maison Nacht, Sienna y fait la rencontre de Loreina et trouve en elle une sœur de fortune… Une sœur rassurante qui fait tourner son triste monde… Une sœur qui, pourtant, dans l’ombre, lui voue une haine tenace et tente un jour de l’assassiner. Encore sous le choc, Sienna fait un retour dans le passé et, à sa grande surprise, ne trouve aucune trace de la traîtresse… L’occasion unique de savoir à quoi ressemble une vie sans Loreina… Et si son absence était une délivrance ?
